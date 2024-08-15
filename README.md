@@ -2,7 +2,7 @@
 
 I'm Sanjay
 
-Second Year Computer Science and Technology
+Second Year Computer Science and Engineering
 
 CONTACT ME...
 sanjaysekarviji27@gmail.com
